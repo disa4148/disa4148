@@ -1,4 +1,4 @@
-- 👋 - Hi, I'm @disa4148
+- 👋 - Hi, I'm Denis Nikolaenko (@disa4148)
 - 👀 - I am interested in web development
 - 🌱 - I am currently in my second year of college
 - 💞 ️- I am looking for opportunities for cooperation
